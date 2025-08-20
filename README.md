@@ -1,4 +1,4 @@
-# [Danilo Henrique] <img src="https://www.textures4photoshop.com/tex/thumbs/matrix-code-animation-gif-free-animated-background-716.gif" width="80px">
+# [Danilo Henrique] <img src="https://www.textures4photoshop.com/tex/thumbs/matrix-code-animation-gif-free-animated-background-716.gif" width="50px">
 
 Eu sou <strong>Danilo Henrique</strong>, <strong>Estudante de ADS - Senac</strong> 👨🏻‍💻 
 
