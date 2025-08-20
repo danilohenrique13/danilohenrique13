@@ -1,4 +1,4 @@
-# [Danilo Henrique] <img src="https://media.tenor.com/UCJG6CmhNXIAAAAM/fsociety.gif" width="60px">
+# [Danilo Henrique] <img src="https://media.tenor.com/UCJG6CmhNXIAAAAM/fsociety.gif" width="80px">
 
 Eu sou <strong>Danilo Henrique</strong>, <strong>Estudante de ADS - Senac</strong> 👨🏻‍💻 
 
