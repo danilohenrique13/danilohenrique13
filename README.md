@@ -1,4 +1,4 @@
-# [Danilo Henrique] <img src="https://digimitos.com/wp-content/uploads/2024/01/primal-top-pick.gif" width="250px">
+# [Danilo Henrique] <img src="https://media.tenor.com/UCJG6CmhNXIAAAAM/fsociety.gif" width="100px">
 
 Eu sou <strong>Danilo Henrique</strong>, <strong>Estudante de ADS - Senac</strong> 👨🏻‍💻 
 
