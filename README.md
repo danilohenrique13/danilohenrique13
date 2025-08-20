@@ -1,4 +1,4 @@
-# [Danilo Henrique] <img src="https://github.com/TheDudeThatCode/TheDudeThatCode/blob/master/Assets/Mario_Hello_Big.gif" width="30px">
+# [Danilo Henrique] <img src="https://i.redd.it/kk1sq75q9wk91.gif" width="30px">
 
 Eu sou <strong>Danilo Henrique</strong>, <strong>Estudante de ADS - Senac</strong> 👨🏻‍💻 
 
