@@ -2,7 +2,7 @@
 
 Eu sou <strong>Danilo Henrique</strong>, <strong>Estudante de ADS - Senac</strong> 👨🏻‍💻 
 
-- 🚀 Atualmente estou aprendendo: <strong>Nenhuma</strong> 
+- 🚀 Atualmente estou aprendendo: <strong>Programação</strong> 
 - 💬 Pergunte-me sobre: <strong>Não pergunte</strong>
 - 📣 Nós podemos falar em: <strong>Português(mais ou menos), Inglês(menos pra mais)</strong>
 
